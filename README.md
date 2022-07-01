@@ -9,9 +9,9 @@ I'm EJ, a first-year CS student at West Visayas State University.
 - Video editing 💻 (some basic stuff)
 
 ### 😁 What I do in my free time ...
-- Reading fictions 📚
+- Reading fiction 📚
 - Sleep 😴
-- Listening to differint kinds of music 🎵
+- Listening to different kinds of music 🎵
 - Writing random literary pieces ✍
 
 
